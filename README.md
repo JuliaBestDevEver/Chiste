@@ -1,2 +1,2 @@
 # Chiste
-asdasda
+Había una vez un barquito chiquito.
